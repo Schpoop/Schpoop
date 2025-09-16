@@ -1,4 +1,4 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎  ![G0antJrW0AAChLy](https://github.com/user-attachments/assets/6d99e899-0141-4c02-bd41-28adb0a0dfc4)                      
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎  <img width="2048" height="536" alt="Glory to Westhelm (2)" src="https://github.com/user-attachments/assets/c9342ae3-0375-4979-b4a3-ca2ab0f222c8" />                     
 
 
 
@@ -22,4 +22,6 @@ $${\color{yellow}Currently}$$ $${\color{yellow}listening:}$$ ‎ ‎‎ ‎ ‎ 
 
 ![GzQ6gbcXsAAGHGK](https://github.com/user-attachments/assets/f0b0abcb-769b-4f66-9f5e-80f88dca9398)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ <ins>*Art Credit: @Virtue1nvain on X.*</ins>
+
+
 
