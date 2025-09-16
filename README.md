@@ -16,3 +16,9 @@
 
 $${\color{yellow}Currently}$$ $${\color{yellow}listening:}$$ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s6llcf1611ahcow6dwx8mooic&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=f3aa44&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+
+
+
+
+![GzQ6gbcXsAAGHGK](https://github.com/user-attachments/assets/f0b0abcb-769b-4f66-9f5e-80f88dca9398)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ <ins>*Art Credit: @Virtue1nvain on X.*</ins>
