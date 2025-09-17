@@ -29,12 +29,14 @@ $${\color{yellow}Currently}$$ $${\color{yellow}listening:}$$ ‎ ‎‎ ‎ ‎ 
 
 
 
-![ezgif-75b71f60e9a8ac](https://github.com/user-attachments/assets/d7d7723c-ae7c-4b8c-8285-98910fab26c6) ![glorytowesthelm](https://github.com/user-attachments/assets/513361b4-8767-46ad-befd-2745d603d6d6) ![ezgif-7322b4323a7fb9](https://github.com/user-attachments/assets/ed6fc725-96e9-4106-95dc-cc9edd6f5bc1)
+![ezgif-71054dabf8a7c5](https://github.com/user-attachments/assets/3628db97-7b2f-412a-b423-994b4612cfaf) ![glorytowesthelm](https://github.com/user-attachments/assets/513361b4-8767-46ad-befd-2745d603d6d6) ![ezgif-74b2558c527791](https://github.com/user-attachments/assets/25776980-1bf1-4fec-b35f-58f88ab55c39)
 
 
 
 
 https://github.com/user-attachments/assets/1f5f8ce5-f895-46d1-b8ab-a9aafb1dff42
+
+
 
 
 
