@@ -29,8 +29,16 @@ $${\color{yellow}Currently}$$ $${\color{yellow}listening:}$$ ‎ ‎‎ ‎ ‎ 
 
 
 
+![ezgif-7a9875ac894b57](https://github.com/user-attachments/assets/e200a3b8-0de5-4b6e-828c-a2da29c08499) ![glorytowesthelm](https://github.com/user-attachments/assets/513361b4-8767-46ad-befd-2745d603d6d6) ![schpoop](https://github.com/user-attachments/assets/fb251f76-cc42-4346-bf23-17e1e1be9cec)
+
+
+
 
 https://github.com/user-attachments/assets/1f5f8ce5-f895-46d1-b8ab-a9aafb1dff42
+
+
+
+
 
 
 
