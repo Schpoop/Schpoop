@@ -1,3 +1,5 @@
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![jupiter_legatus_text_ver](https://github.com/user-attachments/assets/72163cc4-beeb-4fed-bacb-21dcd05bc581)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎  <img width="498" height="36" alt="87942454" src="https://github.com/user-attachments/assets/dd9a8146-6106-4b86-a677-e7b54d035165" />                     
 
 
