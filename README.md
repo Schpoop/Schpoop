@@ -31,7 +31,7 @@ $${\color{yellow}Currently}$$ $${\color{yellow}listening:}$$ ‎ ‎‎ ‎ ‎ 
 
 
 
-![ezgif-71054dabf8a7c5](https://github.com/user-attachments/assets/3628db97-7b2f-412a-b423-994b4612cfaf) ![glorytowesthelm](https://github.com/user-attachments/assets/513361b4-8767-46ad-befd-2745d603d6d6) ![ezgif-74b2558c527791](https://github.com/user-attachments/assets/25776980-1bf1-4fec-b35f-58f88ab55c39)
+
 
 
 
